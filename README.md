@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @jj4492411
+- 👀 I’m interested in coding
